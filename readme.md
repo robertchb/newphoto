@@ -1,1 +1,0 @@
-![image-20250807075303343](https://raw.githubusercontent.com/robertchb/newphoto/master/image-20250807075303343.png)
